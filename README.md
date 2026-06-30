@@ -23,5 +23,5 @@
 - To-Do List
 
 ## Connect with me
-LinkedIn: (Add your LinkedIn link)
-Email: (Add your email)
+LinkedIn: (https://www.linkedin.com/in/deepak-singh-29474741a )
+Email: (deepakumar06082005@gmail.com)
